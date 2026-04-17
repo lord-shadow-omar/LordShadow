@@ -1,2 +1,2 @@
 # LordShadow
-I'm lord shadow own this website
+I'm lord shadow
